@@ -1,7 +1,7 @@
 合约交易丨秒合约丨永续合约丨币币合约交易所系统开发丨支持输赢控制
 合约交易丨秒合约丨永续合约丨币币合约交易所系统开发丨支持输赢控制
 看演示效果👇
-需要的培养联系飞机：@AMGT1 或者@diaoGT
+需要的朋友联系飞机：@AMGT1 或者@diaoGT
 <img width="2932" height="1680" alt="Jietu20261110-064531@2x" src="https://github.com/user-attachments/assets/85cf6927-cc84-433d-adb2-039394a01934" />
 <img width="2932" height="1680" alt="Jietu20261110-064457@2x" src="https://github.com/user-attachments/assets/6228f63f-b998-413d-ae1e-359f6253f282" />
 <img width="2932" height="1680" alt="Jietu20261110-064416@2x" src="https://github.com/user-attachments/assets/1032a58d-c8a2-4c8b-8f24-96e750d3e2de" />
